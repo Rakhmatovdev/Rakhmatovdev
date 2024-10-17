@@ -48,7 +48,7 @@ Check out more of my projects in the [Repositories](#) section!
 
 - **Twitter**: [@Rakhmatovdev](https://twitter.com/Rakhmatovdev)
 - **LinkedIn**: [Your LinkedIn Profile](#)
-- **Email**: [Your Email](#)
+- **Email**: [Your Email](https://rahmatovjasur3@gmail.com)
 
 ---
 
